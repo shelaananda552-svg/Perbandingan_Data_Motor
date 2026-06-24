@@ -1,0 +1,1 @@
+# Perbandingan_Data_Motor
